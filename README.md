@@ -1,5 +1,5 @@
 <p align="center"> 
-    <img src="https://komarev.com/ghpvc/?username=astronovaIite&label=welcome+to+my+profile+!&color=989855&style=flat-square"/>
+    <img src="https://komarev.com/ghpvc/?username=astronovaIite&label=For my+soul+why?+I'm+not+dead+.&color=989855&style=flat-square"/>
 <p align="center">
 </p>
 <p align="center">
